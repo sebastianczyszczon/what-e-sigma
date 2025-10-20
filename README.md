@@ -1,0 +1,1 @@
+tansza alternatywa 
